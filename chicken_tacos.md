@@ -18,5 +18,5 @@ Kosher salt and freshly ground black pepper, to taste,
 
 ## RECIPE
 
-In a small bowl, combine chili powder, cumin, paprika, oregano, garlic powder, 1 teaspoon salt and 1/2 teaspoon pepper. Season chicken with chili powder mixture.
+In a big bowl, combine chili powder, cumin, paprika, garlic powder, 1 teaspoon salt and 1/2 teaspoon pepper. Season beef with chili powder mixture.
 Heat canola oil in a large skillet over medium high heat. Working in batches, add chicken to the skillet in a single layer and cook until golden brown and cooked through, reaching an internal temperature of 165 degrees F, about 4-5 minutes per side. Let cool before dicing into bite-size pieces. Serve chicken in tortillas, topped with pico de gallo, avocado, cilantro and lime.
