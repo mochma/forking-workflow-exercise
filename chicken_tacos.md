@@ -2,10 +2,10 @@
 With a simple spice rub, the chicken is cooked so quickly on the stovetop! Dice into small pieces and serve with pico, avocado + lime!
 
 ## INGREDIENTS:
-2 teaspoons chili powder
-1 teaspoon ground cumin
-1 teaspoon smoked paprika
-1 teaspoon dried oregano
+4 teaspoons chili powder
+2 teaspoon ground cumin
+2 teaspoon smoked paprika
+2 teaspoon dried oregano
 1/2 teaspoon garlic powder
 Kosher salt and freshly ground black pepper, to taste,
 1 1/2 pounds boneless, skinless chicken thighs
