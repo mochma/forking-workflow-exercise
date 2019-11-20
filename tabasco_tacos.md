@@ -3,4 +3,5 @@
 1. Take some tacos
 2. Add very liberal amounts of Tabasco
 3. Sprinkle with chili flakes
-4. Enjoy!
+4. Also add more Habanero
+5. Enjoy!
