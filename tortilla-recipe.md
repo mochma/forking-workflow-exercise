@@ -1,5 +1,5 @@
 RECIPE FOR TORTILLA
-recomended for tacos
+recomended for tacos and other stuff
 
 2 cups all-purpose flour
 1/2 teaspoon salt
