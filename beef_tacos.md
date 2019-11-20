@@ -5,7 +5,7 @@
 
 We are avid meat eaters, so we need meat tacos.
 
-- Fry beef
+- Fry lots of beef
 - Pickled chilis and vegetables
 - Caramelized red onions
 - Guacamole
